@@ -1,0 +1,3 @@
+- 17yo
+- Trying to find my place in the world
+- Games are my life, or at less close to it
